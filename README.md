@@ -1,10 +1,10 @@
-天天吃瓜网最新地址👋（最新更新时间2024-2-27）
+天天吃瓜网最新地址👋（最新更新时间2024-3-2）
 
-天天吃瓜最新官网：https://ttcg9.fun/
+天天吃瓜最新官网：https://ttcg10.fun/
 
 天天吃瓜备用线路1 https://ttcg.bet/
 
-天天吃瓜官方QQ群：https://ttcg9.fun/?path=/qun.html
+天天吃瓜官方QQ群：https://ttcg10.fun/?path=/qun.html
 
 天天吃瓜永久地址（需科学⬆️网工具）https://ttcg.bet/
 
